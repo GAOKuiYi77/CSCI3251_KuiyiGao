@@ -1,1 +1,1 @@
-I am KuiyiGao, My SID is 1155211027
+My name is KuiyiGao and My SID is 1155211027
